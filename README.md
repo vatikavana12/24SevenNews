@@ -1,1 +1,1 @@
-# 24SevenNews
+https://discoveryvoyages.weebly.com
